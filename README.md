@@ -1,1 +1,1 @@
-sepuh kos jundi
+sepuh kos jundi bims
